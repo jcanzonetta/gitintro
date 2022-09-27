@@ -1,1 +1,2 @@
 Justin Canzonetta
+canzonej@oregonstate.edu
